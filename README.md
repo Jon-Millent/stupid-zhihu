@@ -3,6 +3,9 @@
 
 > 仅代表个人观点。看看就好，切勿入戏。
 
+### 大学一个月5000生活费多了吗？
+https://www.zhihu.com/question/331434459/answer/740215011
+
 ### 我的女儿上初三了 从初中开始就爱美 她是不是谈恋爱了？
 https://www.zhihu.com/question/417877284/answer/1443189231
 
