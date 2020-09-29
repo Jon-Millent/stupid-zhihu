@@ -1,5 +1,13 @@
 # stupid-zhihu
 
+
+
+### 女孩子长得漂亮是种怎样的体验？
+https://www.zhihu.com/question/334483667/answer/748515819
+
+### 有性感的身材是什么感受?
+https://www.zhihu.com/question/340990864/answer/1493151085
+
 ### 我是一个十三岁的女生，不喜欢追星看综艺，喜欢研究古埃及，是不是心理不正常啊？
 https://www.zhihu.com/question/411257710/answer/1404257250
 
